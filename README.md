@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 👋 Hola, soy Justin<br>- 👀 Estoy interesado en el desarrollo web, la inteligencia artificial y el big data.<br>- 🌱 Actualmente estoy aprendiendo conceptos avanzados de IA y Big Data.<br>- 💞️ Estoy buscando colaborar en proyectos innovadores que combinen desarrollo web y aprendizaje automático.<br>- 📫 Cómo contactarme: [Correo electrónico](mailto:25justin04@gmail.com) o [Mi perfil de LinkedIn](https://www.linkedin.com/in/justin-campuzano-n-5bbb182a3/).<br>- 😄 Pronombres: Él.<br>- ⚡ Dato curioso: Me encanta explorar nuevas tecnologías en mi tiempo libre.<br>
+- 👋 Hola, soy Justin<br>- 👀 Estoy interesado en el desarrollo web, la inteligencia artificial y el big data.<br>- 🌱 Actualmente estoy aprendiendo conceptos avanzados de IA y Big Data.<br>- 💞️ Estoy buscando colaborar en proyectos innovadores que combinen desarrollo web y aprendizaje automático.<br>- 📫 Cómo contactarme: [Correo electrónico](mailto:25justin04@gmail.com) o [Mi perfil de LinkedIn](https://www.linkedin.com/in/justin-campuzano-n-5bbb182a3/).<br>- ⚡ Dato curioso: Me encanta explorar nuevas tecnologías en mi tiempo libre.<br>
 
 
 ## 🌐 Socials:
